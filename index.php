@@ -1,1 +1,1 @@
-ini adalah index
+ini adalah index pertama
