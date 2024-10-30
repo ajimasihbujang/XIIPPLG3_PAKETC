@@ -1,1 +1,1 @@
-ini adalah index pertama riski ganteng
+ini adalah index pertama riski ganteng calon mantu idaman mu
