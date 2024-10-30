@@ -1,1 +1,1 @@
-ini adalah index pertama
+ini adalah index pertama riski ganteng
